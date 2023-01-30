@@ -1,0 +1,2 @@
+# pratice
+why always error
